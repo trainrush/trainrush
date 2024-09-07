@@ -18,7 +18,7 @@
 # ⛧] `>` BYI !!
 > + I get ***overwhelmed easily***. If I disappear randomly, that's often why 
 > + I also tend to be ***very spacey***. I may not reply or react immediately 
-> + ***[Tone tags](https://tonetags.carrd.co/)*** are ***appreciated***, but not always needed 
+> + <a href="https://tonetags.carrd.co/" target="_blank">***Tone tags***</a> are ***appreciated***, but not always needed 
 
 <hr>
 <img src="" alt="placeholder image">
@@ -26,8 +26,9 @@
 
 # ⛧] `>` DNI !! 
 
-> + alfred's playhouse 'fans'.
-> + those tboi fans (aka people who sexualize the characters) 
+> + <a href="https://dni-criteria.carrd.co/" target="_blank">***Basic DNI criteria***</a>
+> + **Alfred's Playhouse** 'fans'.
+> + **Those** TBOI fans (aka people who sexualize the characters)
 
 ### `>` Thin ice ;
 > + **Dandy's world** fans (bad experiences)
