@@ -1,99 +1,56 @@
 > [!IMPORTANT]
-> ### Read please!!!!!!
-`> Hey gang. I'm StaryChan! I made this very Github page! 
-
-
-# ⛧] > Hi!! I go by Train or Judah. 
-<img src="https://github.com/trainrush/trainrush/blob/main/aroace.png?raw=true" height=50px;><img src="https://github.com/trainrush/trainrush/blob/main/genderfluid.png?raw=true" height=50px;>
+> ## PLEASE READ THIS BEFORE YOU INTERACT!! THIS IS <ins>IMPORTANT</ins>!!!
+> `EDITOR'S NOTE: Hey gang!! I'm StaryChan! That's right, THE Stary J. Chan(the J means fortnite, of course/j). I made this very Github page! Credits to me! ..I am not being held at gunpoint to credit myself, no! Not at all! Haha! (Seriously though I looove lovelove Train. Love em. Please read through all of this and send them your love!! They're COOL!!!! COOOOLLL!!!!! ok bye)`
 <hr>
 
+# <img src="aroace.png" height=35px;><img src="genderfluid.png" height=35px;> ] `>` Hi!! I go by Train or Judah. 
+
 > + Any pronouns 
-> + Autistic and socially anxious 
-> + Cuddles + hiding is always welcome when i'm alone. crowns are appreciated regardless of any dni status!! 
-> + Please don't copy me!! taking inspiration is fine 
-> + I also hide freely. Mostly eyestrains. Nothing personal `( Judah has sensitive eyes -Stary )`
+> + ***Autistic*** and socially ***anxious*** `(Also introverted, and will get overwhelmed when there are many people at once -Stary)`
+> + Cuddles + hiding is always welcome when I'm alone. Crowns are appreciated ***regardless of any dni status***!! 
+> + Please don't copy me!! Taking inspiration is fine 
+> + I also hide freely. Mostly ***eyestrains***. Nothing personal `(Judah has sensitive eyes -Stary)`
 
-> 
+<hr>
+<img src="" alt="placeholder image">
+<hr>
 
-BYI !!
-i get overwhelmed easily. if i disappear randomly, that's often why 
+# ⛧] `>` BYI !!
+> + I get ***overwhelmed easily***. If I disappear randomly, that's often why 
+> + I also tend to be ***very spacey***. I may not reply or react immediately 
+> + ***[Tone tags](https://tonetags.carrd.co/)*** are ***appreciated***, but not always needed 
 
-i also tend to be very spacey. i may not reply or react immediately 
+<hr>
+<img src="" alt="placeholder image">
+<hr>
 
-tone tags are appreciated, but not always needed 
+# ⛧] `>` DNI !! 
 
-> 
+> + alfred's playhouse 'fans'.
+> + those tboi fans (aka people who sexualize the characters) 
 
-DNI !! 
+### `>` Thin ice ;
+> + **Dandy's world** fans (bad experiences)
+> + **South park** fans (same reason) 
 
-alfred's playhouse 'fans'.
-those tboi fans (aka people who sexualize the characters) 
+<hr>
+<img src="" alt="placeholder image">
+<hr>
 
-thin ice ;
-dandy's world fans (bad experiences)
-south park fans (same reason) 
+# ⛧] `>` INTERESTS/OTHER !! 
 
-> 
+> + Currently fixated on ***Dandy's World***! (<ins>I do not support the creator</ins>) 
+> + ***Ask*** about other interests. feel free to ask me anything, actually! 
+> + Thank you to anyone who took the time to read through this <3
 
-currently fixated on Dandy's World! (i do not support the creator) 
+<hr>
+<img src="" alt="placeholder image">
+<hr>
 
-ask about other interests. feel free to ask me anything, actually! 
+### `>` Shoutout to my (queer platonic) partner StaryChanLolz`(Harharhar. I'm that guy -Stary)`, and friends Geo and Gummy :3 
+<hr>
+<img src="" alt="placeholder image">
 
-thank you to anyone who took the time to read through this <3 
-
-> 
-
-shoutout to my (queer platonic) partner StaryChanLolz, and friends Geo and Gummy :3 
-
-
-<!--
-Read Please!!!!!! 
-(put credit for yourself here!! this is not a suggestion.) 
-
-> 
-
-hi!! i go by Train or Judah. any pronouns 
-
-autistic and socially anxious 
-
-cuddles + hiding is always welcome when i'm alone. crowns are appreciated regardless of any dni status!! 
-
-please don't copy me!! taking inspiration is fine 
-
-i also hide freely. mostly eyestrains. nothing personal 
-
-> 
-
-BYI !!
-i get overwhelmed easily. if i disappear randomly, that's often why 
-
-i also tend to be very spacey. i may not reply or react immediately 
-
-tone tags are appreciated, but not always needed 
-
-> 
-
-DNI !! 
-
-alfred's playhouse 'fans'.
-those tboi fans (aka people who sexualize the characters) 
-
-thin ice ;
-dandy's world fans (bad experiences)
-south park fans (same reason) 
-
-> 
-
-currently fixated on Dandy's World! (i do not support the creator) 
-
-ask about other interests. feel free to ask me anything, actually! 
-
-thank you to anyone who took the time to read through this <3 
-
-> 
-
-shoutout to my (queer platonic) partner StaryChanLolz, and friends Geo and Gummy :3 
--->
 <!--
 **trainrush/trainrush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
