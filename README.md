@@ -1,15 +1,17 @@
 > [!IMPORTANT]
-> ### Read please!!!!!! 
+> ### Read please!!!!!!
+`> Hey gang. I'm StaryChan! I made this very Github page! 
 
 
 # ⛧] > Hi!! I go by Train or Judah. 
-<img src="">
+<img src="https://github.com/trainrush/trainrush/blob/main/aroace.png?raw=true" height=50px;><img src="https://github.com/trainrush/trainrush/blob/main/genderfluid.png?raw=true" height=50px;>
+<hr>
 
 > + Any pronouns 
-> + autistic and socially anxious 
-> + cuddles + hiding is always welcome when i'm alone. crowns are appreciated regardless of any dni status!! 
-> + please don't copy me!! taking inspiration is fine 
-> + i also hide freely. mostly eyestrains. nothing personal 
+> + Autistic and socially anxious 
+> + Cuddles + hiding is always welcome when i'm alone. crowns are appreciated regardless of any dni status!! 
+> + Please don't copy me!! taking inspiration is fine 
+> + I also hide freely. Mostly eyestrains. Nothing personal `( Judah has sensitive eyes -Stary )`
 
 > 
 
