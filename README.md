@@ -40,7 +40,7 @@
 
 # ⛧] `>` INTERESTS/OTHER !! 
 
-> + Currently fixated on ***Dandy's World***! (<ins>I do not support the creator</ins>) 
+> + Currently fixated on ***The Binding of Isaac***! 
 > + ***Ask*** about other interests. feel free to ask me anything, actually! 
 > + Thank you to anyone who took the time to read through this <3
 
