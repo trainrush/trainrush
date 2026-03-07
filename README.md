@@ -20,7 +20,7 @@
 > + I tend to space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
 > + I'm not great with cues, and can't always tell if I've done something to make someone uncomfortable. tell me if I do something! be blunt if you need! I assure you, I won't mind.
 > + I often don't start interactions or reach out much on my own. It doesn't mean I don't want to talk!! I'm just a very introverted person.
-> + <a href="https://tonetags.carrd" target="_blank">tone tags</a> are appreciated, but not needed.
+> + <a href="tonetags.carrd.co/">tone tags</a> appreciated, but not needed.
 
 <hr>
 
