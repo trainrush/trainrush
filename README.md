@@ -1,56 +1,51 @@
 > [!IMPORTANT]
-> ## PLEASE READ THIS BEFORE YOU INTERACT!! THIS IS <ins>IMPORTANT</ins>!!!
-> `EDITOR'S NOTE: Hey gang!! I'm StaryChan! That's right, THE Stary J. Chan(the J means fortnite, of course/j). I made this very Github page! Credits to me! ..I am not being held at gunpoint to credit myself, no! Not at all! Haha! (Seriously though I looove lovelove Train. Love em. Please read through all of this and send them your love!! They're COOL!!!! COOOOLLL!!!!! ok bye)`
+> ## me stuff! 💝
+> ` note; this was mostly formatted by my partner! thanks Stary! `
 <hr>
 
-# <img src="aroace.png" height=35px;><img src="genderfluid.png" height=35px;> ] `>` Hi!! I go by Train or Judah. 
+# <img src="aroace.png" height=35px;> ] hi!! I go by Train or Judah!!
 
-> + Any pronouns 
-> + ***Autistic*** and socially ***anxious*** `(Also introverted, and will get overwhelmed when there are many people at once -Stary)`
-> + Cuddles + hiding is always welcome when I'm alone. Crowns are appreciated ***regardless of any dni status***!! 
-> + Please don't copy me!! Taking inspiration is fine 
-> + I also hide freely. Mostly ***eyestrains***. Nothing personal `(Judah has sensitive eyes -Stary)`
-
-<hr>
-<img src="" alt="placeholder image">
-<hr>
-
-# ⛧] `>` BYI !!
-> + I get ***overwhelmed easily***. If I disappear randomly, that's often why 
-> + I also tend to be ***very spacey***. I may not reply or react immediately 
-> + <a href="https://tonetags.carrd.co/" target="_blank">***Tone tags***</a> are ***appreciated***, but not always needed 
+> + I am a young adult! if that bothers you, just don't interact!
+> + any pronouns. they/them works if you're not sure.
+> + autism + anxiety!! + other disorders!
+> + I'm not a social person on my own, but I do like company!! feel free to approach!
+> + c+h is always welcomed ***if*** I'm alone. If not, just ask! it'll depend on whether who I'm with is comfortable. :]
+> + I like roleplaying and cats and lots of other stuff. :3
 
 <hr>
-<img src="" alt="placeholder image">
-<hr>
 
-# ⛧] `>` DNI !! 
-
-> + <a href="https://dni-criteria.carrd.co/" target="_blank">***Basic DNI criteria***</a>
-> + **Alfred's Playhouse** 'fans'.
-> + **Those** TBOI fans (aka people who sexualize the characters)
-
-### `>` Thin ice ;
-> + **Dandy's world** fans (bad experiences)
-> + **South park** fans (same reason) 
+# ⛧] ❄ BYI !!
+> + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
+> + my memory is all over the place. I may not always remember who you are. please remind me if you need!! 
+> + I tend to space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
+> + I'm not great with cues, and can't always tell if I've done something to make someone uncomfortable. be blunt if I do something! I assure you, I won't mind.
+> + I don't start interactions on my own very often. It doesn't mean I don't want to talk! I'm just a very anxious person.
+> + <a href="https://tonetags.carr" target="_blank">tone tags</a> are appreciated, but not needed.
 
 <hr>
-<img src="" alt="placeholder image">
+
+# ⛧] ❄ DNI !! 
+
+> + I don't have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
+
+### `>` But even still.. ;
+
+> + I will block anyone that's intentionally causing problems.
+> + I would prefer sexual jokes *towards* me are kept to a minimum.
+
 <hr>
 
-# ⛧] `>` INTERESTS/OTHER !! 
+# ⛧] ❄ INTERESTS/OTHER !! 
 
-> + Currently fixated on ***The Binding of Isaac***! 
-> + ***Ask*** about other interests. feel free to ask me anything, actually! 
-> + Thank you to anyone who took the time to read through this <3
+> + Currently fixated on **GRACE** and **MEWGENICS**!!
+> + but I have a whole bunch of other interests too!! ask if you want.
+> + I don't type how I usually do here!! I usually type in all lower case with little punctuation lol
+> + I've been told I can seem intimidating, but I promise I don't bite :) I like making friends.
 
 <hr>
-<img src="" alt="placeholder image">
-<hr>
 
-### `>` Shoutout to my (queer platonic) partner StaryChanLolz`(Harharhar. I'm that guy -Stary)`, and friends Geo and Gummy :3 
+> + Shoutout to my partner <a href="https://github.com/StaryChanLolz)" target="_blank">Stary</a>, and everyone else I know you are all SO COOL!!!!! <3
 <hr>
-<img src="" alt="placeholder image">
 
 <!--
 **trainrush/trainrush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
