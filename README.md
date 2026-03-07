@@ -6,7 +6,7 @@
 # <img src="flower.gif" height=35px;> hi!! I go by Train or Judah!! <img src="flower.gif" height=35px;>
 
 > + I am a young adult! if that bothers you, just don't interact!
-> + any pronouns. they/them works if you're not sure.
+> + any pronouns. they/them works if you're unsure.
 > + autism + anxiety!! + other disorders!
 > + I'm not a social person on my own, but I do like company!! feel free to approach!
 > + c+h is always welcomed ***if*** I'm alone. If not, just ask! it'll depend on whether who I'm with is comfortable. :]
