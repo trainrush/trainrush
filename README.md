@@ -26,7 +26,7 @@
 
 <img src="Snapcats_Running.gif" height=40px;> **DNI . . .**
 
-> + I don't curreny have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
+> + I don't currently have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
 
 But . . .
 
