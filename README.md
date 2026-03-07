@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> ## INFO! 
+> ## INFO! <img src="SNAPPED_BACK_Badge.png" height=60px;> . . .
 > ` this was mostly formatted by my partner! thanks Stary! `
 <hr>
 
