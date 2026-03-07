@@ -14,7 +14,7 @@
 
 <hr>
 
-# ⛧] BYI
+# ⛧] BYI . . .
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
 > + my memory is all over the place. I may not always remember who you are. please remind me if you need!! 
 > + I tend to space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
@@ -24,7 +24,7 @@
 
 <hr>
 
-# ⛧] DNI
+# ⛧] DNI . . .
 
 > + I don't have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
 
@@ -35,7 +35,7 @@
 
 <hr>
 
-# ⛧] INTERESTS/OTHER
+# ⛧] INTERESTS/OTHER . . .
 
 > + Currently fixated on **GRACE** and **MEWGENICS**!!
 > + but I have a whole bunch of other interests too!! ask if you want.
