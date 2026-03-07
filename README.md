@@ -3,7 +3,7 @@
 > ` this was mostly formatted by my partner! thanks Stary! `
 <hr>
 
-# <img src="flower.gif" height=35px;> hi!! I go by Train or Judah!! <img src="flower.gif" height=35px;>
+# <img src="flower.gif" height=35px;> hi!! I'm Train or Judah! <img src="flower.gif" height=35px;>
 
 > + I am a young adult! if that bothers you, just don't interact!
 > + any pronouns. they/them works if you're unsure.
