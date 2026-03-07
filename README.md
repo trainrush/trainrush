@@ -14,7 +14,7 @@
 
 <hr>
 
-<img src="Snapcat_Idle_1.gif" height=40px;> **BYI . . .**
+<img src="Snapcat_Idle_1.gif" height=40px;> <img src="BYI_20260308102848.png" height=40px;> <img src="dotsies.png" height=30px;>
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
 > + my memory is far from good, it is inconsistent. I may not always remember who you are. please remind me if you need!! 
 > + I tend to space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
@@ -24,7 +24,7 @@
 
 <hr>
 
-<img src="Snapcats_Running.gif" height=40px;> **DNI . . .**
+<img src="Snapcats_Running.gif" height=40px;> <img src="DNI.png" height=40px;> <img src="dotsies.png" height=30px;>
 
 > + I don't currently have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
 
