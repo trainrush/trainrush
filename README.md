@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> ## me stuff! 💝
+> ## INFO! 
 > ` this was mostly formatted by my partner! thanks Stary! `
 <hr>
 
@@ -14,7 +14,7 @@
 
 <hr>
 
-# ⛧] BYI . . .
+<img src="Snapcat_Idle_1.gif" height=40px;> **BYI . . .**
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
 > + my memory is all over the place. I may not always remember who you are. please remind me if you need!! 
 > + I tend to space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
@@ -24,20 +24,20 @@
 
 <hr>
 
-# ⛧] DNI . . .
+<img src="Snapcats_Running.gif" height=40px;> **DNI . . .**
 
 > + I don't have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
 
-### `>` But even still.. ;
+`>` But even still.. ;
 
 > + I will block anyone that's intentionally causing problems.
 > + I would prefer sexual jokes *towards* me are kept to a minimum.
 
 <hr>
 
-# ⛧] INTERESTS/OTHER . . .
+<img src="Snapcat_Idle_1.gif" height=40px;> **INTERESTS/OTHER . . .**
 
-> + Currently fixated on **GRACE** and **MEWGENICS**!!
+> + Currently focused on **GRACE** and **MEWGENICS**!!
 > + but I have a whole bunch of other interests too!! ask if you want.
 > + I don't type how I usually do here!! I usually type in all lower case with little punctuation lol
 > + I've been told I can seem intimidating, but I promise I don't bite :) I like making friends.
