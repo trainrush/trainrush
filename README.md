@@ -26,7 +26,7 @@
 
 <img src="Snapcats_Running.gif" height=40px;> **DNI . . .**
 
-> + I don't have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
+> + I don't curreny have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
 
 But . . .
 
@@ -40,7 +40,7 @@ But . . .
 > + Currently focused on **GRACE** and **MEWGENICS**!!
 > + but I have a whole bunch of other interests too!! ask if you want.
 > + I don't type how I usually do here!! I usually type in all lower case with little punctuation lol
-> + I've been told I can seem intimidating, but I promise I don't bite :) I like making friends.
+> + I've been told I can seem intimidating, but I promise I don't bite :) I'm just another weird lil guy on the internet
 
 <hr>
 
