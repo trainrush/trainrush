@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> ## <img src="Untitled538_20260307234143.png" height=60px;> <img src="SNAPPED_BACK_Badge.png" height=60px;> . . .
+> ## <img src="Untitled538_20260307234143.png" height=60px;> <img src="SNAPPED_BACK_Badge.png" height=60px;> <img src="dotsies.png" height=50px;>
 > ` this was mostly formatted by my partner! thanks Stary! `
 <hr>
 
