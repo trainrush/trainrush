@@ -35,7 +35,7 @@ But . . .
 
 <hr>
 
-<img src="Snapcat_Idle_1.gif" height=40px;> **INTERESTS/OTHER . . .**
+<img src="Snapcat_Idle_1.gif" height=40px;> <img src="OTHER.png" height=60px;> <img src="dotsies.png" height=30px;>
 
 > + Currently focused on **GRACE** and **MEWGENICS**!!
 > + but I have a whole bunch of other interests too!! ask if you want.
