@@ -16,9 +16,9 @@
 
 <img src="Snapcat_Idle_1.gif" height=40px;> **BYI . . .**
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
-> + my memory is all over the place. I may not always remember who you are. please remind me if you need!! 
+> + my memory is far from good, it is inconsistent. I may not always remember who you are. please remind me if you need!! 
 > + I tend to space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
-> + I'm not great with cues, and can't always tell if I've done something to make someone uncomfortable. be blunt if I do something! I assure you, I won't mind.
+> + I'm not great with cues, and can't always tell if I've done something to make someone uncomfortable. tell me if I do something! be blunt if you need! I assure you, I won't mind.
 > + I don't start interactions on my own very often. It doesn't mean I don't want to talk! I'm just a very anxious person.
 > + <a href="https://tonetags.carr" target="_blank">tone tags</a> are appreciated, but not needed.
 
