@@ -44,7 +44,7 @@ But . . .
 
 <hr>
 
-> <img src="flower.gif" height=35px;> Shoutout to my partner <a href="https://github.com/StaryChanLolz)" target="_blank">Stary</a>, and everyone else I know you are all SO COOL!!!!! <3 <img src="flower.gif" height=35px;>
+> <img src="flower.gif" height=35px;> Shoutout to my partner <a href="https://github.com/StaryChanLolz">Stary</a>, and everyone else I know you are all SO COOL!!!!! <3 <img src="flower.gif" height=35px;>
 <hr>
 
 <!--
