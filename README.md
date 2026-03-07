@@ -28,7 +28,7 @@
 
 > + I don't have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
 
-`>` But even still.. ;
+But . . .
 
 > + I will block anyone that's intentionally causing problems.
 > + I would prefer sexual jokes *towards* me are kept to a minimum.
