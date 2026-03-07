@@ -1,6 +1,6 @@
 > [!IMPORTANT]
 > ## me stuff! 💝
-> ` note; this was mostly formatted by my partner! thanks Stary! `
+> ` this was mostly formatted by my partner! thanks Stary! `
 <hr>
 
 # <img src="flower.gif" height=35px;> hi!! I go by Train or Judah!! <img src="flower.gif" height=35px;>
