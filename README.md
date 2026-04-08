@@ -11,15 +11,14 @@
 > + I'm not a social person on my own, but I do like company!! feel free to approach!
 > + c+h is always welcomed ***if*** I'm alone. If not, just ask! it'll depend on whether who I'm with is comfortable!
 > + I like roleplaying and cats and lots of other stuff. :3
-
 <hr>
 
 <img src="Snapcat_Idle_1.gif" height=40px;> <img src="BYI_20260308102848.png" height=40px;> <img src="dotsies.png" height=30px;>
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
-> + my memory is far from good, it is inconsistent. I may not always remember who you are. please remind me if you need!! 
-> + I tend to space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
-> + I'm not great with cues, and can't always tell if I've done something to make someone uncomfortable. tell me if I do something! be blunt if you need! I assure you, I won't mind.
-> + I often don't start interactions or reach out much on my own. It doesn't mean I don't want to talk!! I'm just a very introverted person.
+> + my memory is very inconsistent. I may not always remember who you are. please, don't be afraid to try and remind me!
+> + I space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
+> + I'm not good with cues, and can't always tell if I've done something to make someone uncomfortable. tell me if I do something! be blunt if you need! I assure you, *I won't mind*!!
+> + I usually don't start interactions or reach out on my own. It doesn't mean I don't want to talk!! I'm just a very introverted person.
 > + <a href="https://tonetags.carrd.co/">tone tags</a> are appreciated, but not needed.
 
 <hr>
@@ -31,15 +30,14 @@
 But . . .
 
 > + I will block anyone that's intentionally causing problems.
-> + I would prefer sexual jokes *towards* me are kept to a minimum.
+> + I would prefer nsfw jokes around or especially towards me are kept to a minimum.
 
 <hr>
 
 <img src="Snapcat_Idle_1.gif" height=40px;> <img src="OTHER.png" height=60px;> <img src="dotsies.png" height=30px;>
 
-> + Currently focused on **GRACE** and **MEWGENICS**!!
+> + Currently focused on **NINJAGO**! wow!!
 > + but I have a whole bunch of other interests too!! ask if you want.
-> + I don't type how I usually do here!! I usually type in all lower case with little punctuation lol
 > + I've been told I can seem intimidating, but I promise I don't bite :) I'm just another weird lil guy on the internet
 
 <hr>
