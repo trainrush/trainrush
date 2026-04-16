@@ -5,7 +5,7 @@
 
 # <img src="flower.gif" height=35px;> hi!! I'm Train or Judah! <img src="flower.gif" height=35px;>
 
-> + I am a young adult! if that bothers you, just don't interact!
+> + I am a young adult! if that bothers you, just don't interact! (or tell me not to!)
 > + any pronouns. they/them works if you're unsure.
 > + autism + anxiety!! + other disorders!
 > + I'm not a social person on my own, but I do like company!! feel free to approach!
@@ -15,7 +15,7 @@
 
 <img src="Snapcat_Idle_1.gif" height=40px;> <img src="BYI_20260308102848.png" height=40px;> <img src="dotsies.png" height=30px;>
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
-> + my memory is very inconsistent. I may not always remember who you are. please, don't be afraid to try and remind me!
+> + my memory is very poor. I may not remember who you are sometimes. please, try and remind me!!
 > + I space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
 > + I'm not good with cues, and can't always tell if I've done something to make someone uncomfortable. tell me if I do something! be blunt if you need! I assure you, *I won't mind*!!
 > + I usually don't start interactions or reach out on my own. It doesn't mean I don't want to talk!! I'm just a very introverted person.
