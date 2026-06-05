@@ -9,7 +9,7 @@
 > + any pronouns, he/him preferred.
 > + autism + anxiety! + other disorders!
 > + I'm not a social person on my own, but I do like company!! feel free to approach!
-> + **c+h is always welcome**, unless stated otherwise!! don't hesitate, just come sit with me
+> + **c+h is always welcome**, unless stated otherwise!! don't hesitate, just come sit with me.
 > + I like roleplaying and cats and lots of other stuff. :3
 <hr>
 
