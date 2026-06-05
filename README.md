@@ -17,7 +17,7 @@
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
 > + my memory is very poor. I may not remember who you are sometimes. please, remind me if you need.
 > + I space out a lot. I may not reply or react immediately. don't be afraid to repeat something if I don't catch it!
-> + I'm not good with cues, and can't always tell if I've done something to make someone uncomfortable. *I need to be told outright if I do something wrong*. not enough people are honest with me, so I assure you, *I'll never be upset*!!
+> + I'm not good with cues, and can't always tell if I've done something to make someone uncomfortable. ***I need to be told outright if I do something wrong***. not enough people are honest with me, so I assure you, *I'll never be upset*!!
 > + I usually don't start interactions or reach out on my own. It doesn't mean I don't want to talk!! I'm just an introvert. I'll always be happy if you interact. :)
 > + <a href="https://tonetags.carrd.co/">tone tags</a> are appreciated, but not needed.
 
