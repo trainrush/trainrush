@@ -5,20 +5,20 @@
 
 # <img src="flower.gif" height=35px;> hi!! I'm Train or Judah! <img src="flower.gif" height=35px;>
 
-> + I am a young adult! if that bothers you, just don't interact! (or tell me not to!)
-> + any pronouns. they/them works if you're unsure.
+> + young adult, if that bothers you, just don't interact! (or tell me not to!)
+> + any pronouns, he/him preferred.
 > + autism + anxiety!! + other disorders!
 > + I'm not a social person on my own, but I do like company!! feel free to approach!
-> + c+h is always welcomed ***if*** I'm alone. If not, just ask! it'll depend on whether who I'm with is comfortable! (cuddle comfort though, I like being sat with!)
+> + **c+h is always welcome**, unless stated otherwise!! don't hesitate, just come sit with me
 > + I like roleplaying and cats and lots of other stuff. :3
 <hr>
 
 <img src="Snapcat_Idle_1.gif" height=40px;> <img src="BYI_20260308102848.png" height=40px;> <img src="dotsies.png" height=30px;>
 > + I tend to flip between being very talkative, and very quiet. but I'll always be friendly!
-> + my memory is very poor. I may not remember who you are sometimes. please, try and remind me!!
-> + I space out a lot. I may not reply or react immediately. please don't be afraid to repeat something if I don't catch it!
-> + I'm not good with cues, and can't always tell if I've done something to make someone uncomfortable. tell me if I do something! be blunt if you need! I assure you, *I won't mind*!!
-> + I usually don't start interactions or reach out on my own. It doesn't mean I don't want to talk!! I'm just a very introverted person.
+> + my memory is very poor. I may not remember who you are sometimes. please, remind me if you need.
+> + I space out a lot. I may not reply or react immediately. don't be afraid to repeat something if I don't catch it!
+> + I'm not good with cues, and can't always tell if I've done something to make someone uncomfortable. *I need to be told outright if I do something wrong*. not enough people are honest with me, so I assure you, *I'll never be upset*!!
+> + I usually don't start interactions or reach out on my own. It doesn't mean I don't want to talk!! I'm just an introvert. I'll always be happy if you interact. :)
 > + <a href="https://tonetags.carrd.co/">tone tags</a> are appreciated, but not needed.
 
 <hr>
@@ -36,7 +36,7 @@ But . . .
 
 <img src="Snapcat_Idle_1.gif" height=40px;> <img src="OTHER.png" height=60px;> <img src="dotsies.png" height=30px;>
 
-> + Currently focused on **NINJAGO** and **The Binding of Isaac**! wow!! tboi is a prison that hyperfixation keeps coming back
+> + Currently focused on **NINJAGO** and **Robot32**!
 > + but I have a whole bunch of other interests too!! ask if you want.
 > + I've been told I can seem intimidating, but I promise I don't bite :) I'm just another weird lil guy on the internet
 
