@@ -36,7 +36,7 @@ But . . .
 
 <img src="Snapcat_Idle_1.gif" height=40px;> <img src="OTHER.png" height=60px;> <img src="dotsies.png" height=30px;>
 
-> + Currently focused on **NINJAGO** and **Robot32**!
+> + Currently focused on **The Among Us Show**!! wow!!
 > + but I have a whole bunch of other interests too!! ask if you want.
 > + I've been told I can seem intimidating, but I promise I don't bite :) I'm just another weird lil guy on the internet
 
