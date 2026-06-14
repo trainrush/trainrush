@@ -5,7 +5,7 @@
 
 # <img src="flower.gif" height=35px;> hi!! I'm Train or Judah! <img src="flower.gif" height=35px;>
 
-> + 19, if that bothers you, just don't interact! (or tell me not to!)
+> + I'm 19. if that bothers you, just don't interact!
 > + any pronouns, he/him preferred.
 > + autism + anxiety! + other disorders!
 > + I'm not a social person, but I love company!! feel free to approach!
