@@ -8,7 +8,7 @@
 > + young adult, if that bothers you, just don't interact! (or tell me not to!)
 > + any pronouns, he/him preferred.
 > + autism + anxiety! + other disorders!
-> + I'm not a social person on my own, but I do like company!! feel free to approach!
+> + I'm not a social person, but I love company!! feel free to approach!
 > + **c+h is always welcome**, unless stated otherwise!! don't hesitate, just come sit with me.
 > + I like roleplaying and cats and lots of other stuff. :3
 <hr>
@@ -27,7 +27,7 @@
 
 > + I don't currently have a strict DNI! I don't mind who you are or what you believe. Just be respectful.
 
-But . . .
+> + But . . .
 
 > + I will block anyone that's intentionally causing problems.
 > + I would prefer nsfw jokes around or especially towards me are kept to a minimum.
