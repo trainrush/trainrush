@@ -46,9 +46,9 @@ But . . .
 
 <hr>
 
-For my own purposes, I'm choosing to put various links I find useful ahead!
+For my own purposes, I'm choosing to put various links I find useful down here! Feel free to recommend stuff I put here! :)
 
-**DID related**,
+Links related to dissociative disorders,
 
 https://youtube.com/@thectadclinic?si=Sc9DOK6QWi555ppF
 
