@@ -49,8 +49,10 @@ But . . .
 For my own purposes, I'm choosing to put various links I find useful ahead!
 
 **DID related**,
-https://did-research.org/
+
 https://youtube.com/@thectadclinic?si=Sc9DOK6QWi555ppF
+
+https://did-research.org/
 
 <!--
 **trainrush/trainrush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
