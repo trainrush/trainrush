@@ -46,11 +46,11 @@ But . . .
 
 For my own purposes, I'm choosing to put various links I find useful down here! Feel free to recommend stuff to add! :)
 
-Links related to dissociative disorders,
+> + Links related to dissociative disorders,
 
-https://youtube.com/@thectadclinic?si=Sc9DOK6QWi555ppF
+> + https://youtube.com/@thectadclinic?si=Sc9DOK6QWi555ppF
 
-https://did-research.org/
+> + https://did-research.org/
 
 <!--
 **trainrush/trainrush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
