@@ -44,7 +44,7 @@ But . . .
 
 <hr>
 
-For my own purposes, I'm choosing to put various links I find useful down here! Feel free to recommend stuff to add! :)
+> For my own use, I'm choosing to put various links I find helpful down here! Feel free to recommend stuff to add! :)
 
 >  Links related to dissociative disorders,
 
