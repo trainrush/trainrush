@@ -27,7 +27,7 @@
 
 But . . .
 
-> + I will block anyone that's intentionally causing problems.
+> + I still hide/block anyone I don't want to see.
 > + I would prefer nsfw jokes around or especially towards me are kept to a minimum.
 
 <hr>
