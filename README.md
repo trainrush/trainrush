@@ -4,19 +4,19 @@
 
 # <img src="flower.gif" height=35px;> hi!! I'm Train or Judah! <img src="flower.gif" height=35px;>
 
-> + I'm 19. if that bothers you, just don't interact!
-> + any pronouns, it/its preferred.
+> + I'm an adult! if that bothers you, don't interact!
+> + any pronouns, he/it preferred.
 > + autism + anxiety! + other disorders!
-> + **C+H is always welcome**, don't even hesitate, just come sit with me!! I like company!
+> + **C+H is always welcome**, don't hesitate, just come sit with me!! I enjoy it!
 > + I also like roleplaying and cats and lots of other stuff. :3
 <hr>
 
 <img src="Snapcat_Idle_1.gif" height=40px;> <img src="BYI_20260308102848.png" height=40px;> <img src="dotsies.png" height=30px;>
 > + I may flip between being enthusiastic, and dry. Neither mean anything, it will not mean I'm upset.
-> + My memory is quite bad, I may forget people or details. please feel free to remind me of anything you think is necessary!
+> + My memory is quite bad, I may forget people or details. please remind me of anything you think is necessary!
 > + I space out a lot, and have poor eye sight. I may miss some things. don't be afraid to repeat something if I don't catch it!
-> + I need to be communicated with *directly* if there are problems/if I do something to upset you. I am very unlikely to notice on my own, I am bad with cues. I'll never be mad at you for being honest!!
-> + I usually don't start interactions myself. It doesn't mean I don't want to talk!! I'm just an introvert. I'll always be happy if you interact, whether you're a friend or not. :)
+> + I need to be told *directly* if there are problems/if I do something to upset you. 
+> + I usually don't start interactions myself. It doesn't mean I don't want to talk!! I'll always be happy if you interact, whether you're a friend or not. :)
 > + <a href="https://tonetags.carrd.co/">tone tags</a> are appreciated, but not needed.
 
 <hr>
@@ -42,15 +42,6 @@ But . . .
 
 > <img src="flower.gif" height=35px;> Shoutout to my partner <a href="https://github.com/StaryChanLolz">Stary</a>, and everyone else I know you are all SO COOL!!!!! <3 <img src="flower.gif" height=35px;>
 
-<hr>
-
-> For my own use, I'm choosing to put various links I find helpful down here! Feel free to recommend stuff to add! :)
->
->  Links related to dissociative disorders,
->
-> https://youtube.com/@thectadclinic?si=Sc9DOK6QWi555ppF
->
-> https://did-research.org/
 
 <!--
 **trainrush/trainrush** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
