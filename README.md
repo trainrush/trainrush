@@ -2,7 +2,7 @@
 > ## <img src="Untitled538_20260307234143.png" height=60px;> <img src="SNAPPED_BACK_Badge.png" height=60px;> <img src="dotsies.png" height=50px;>
 <hr>
 
-# <img src="flower.gif" height=35px;> call me Train or Judah! <img src="flower.gif" height=35px;>
+# <img src="flower.gif" height=35px;> Train / Judah! <img src="flower.gif" height=35px;>
 
 > + I'm an adult! if that bothers you, don't interact!
 > + any pronouns, he/it preferred.
